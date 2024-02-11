@@ -1,3 +1,4 @@
-Leonard Arif Sutiono - 19623145
+NAMA : Leonard Arif Sutiono
+NIM : 19623145
 
 SEKURO
